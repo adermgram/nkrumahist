@@ -1,2 +1,2 @@
 # nkrumahist
-Nkrumahist Hotel is a modern hotel located in Ga-East, Taifa, Accra, Greater Accra Region, Ghana.
+Nkrumahist Hotel is a modern hotel located in Ga-East, Taifa, Accra, Greater Accra Region, Ghana. The hotel brings a new level of comfort to Ga-East Taifa, offering modern rooms with warm Ghanaian hospitality. Whether guests are visiting for business, family, or leisure, the hotel is designed to make every stay memorable. Nkrumahist Hotel is ideal for short stays of one night or extended visits.
